@@ -1,5 +1,5 @@
 ## Hi There :v:
-25 year-old, currently working as a 2nd line B2B Network incident management specialist with intrest in cyber security and IT.\
+25 year-old, currently working as a 2nd line B2B Network incident management specialist with intrest in cyber security and IT.
 
 My Socials:\
 [![LinkedIn](https://custom-icon-badges.demolab.com/badge/LinkedIn-0A66C2?logo=linkedin-white&logoColor=fff)](https://www.linkedin.com/in/simo-laaksokivi/) \
